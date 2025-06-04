@@ -15,7 +15,9 @@ Sou uma apaixonada pelo **Clube de Regatas do Flamengo**, o maior clube do Brasi
 - 🏆 Libertadores: 1981 | 2019 | 2022  
 - 🏆 Brasileirão: 1980, 1982, 1983, 1992, 2009, 2019, 2020  
 - 🏟️ Maracanã é nossa casa!
-- 
+![giphy (1)](https://github.com/user-attachments/assets/38e374d6-b36d-4838-82ee-ac2f239da1e8)
+
+  
 
 ## 🌐 Conecte-se comigo
 
