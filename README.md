@@ -2,6 +2,12 @@
 
 # 🔴⚫ Seja bem-vindo(a) ao meu perfil! 🔴⚫
 
+
+
+
+![b52e022c19a4c8f4f4e7604f850761a3](https://github.com/user-attachments/assets/8120027a-d8a7-4e25-9020-37438713e8ad)
+
+
 Sou uma apaixonada pelo **Clube de Regatas do Flamengo**, o maior clube do Brasil!
 
 ## 📝 Sobre mim
